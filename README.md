@@ -4,13 +4,13 @@
 ![habit-emh](https://github.com/user-attachments/assets/f5b6e5a3-4e5b-4424-be4f-68869cd7f628)
 
 
-# **my name is Liam/ fin, I do not have any specific pronouns, call me what you'd like!*
+# *my name is Liam/ fin, I do not have any specific pronouns, call me what you'd like!*
 -----
 
-# Interests;  **Horror media, slenderverse, Homestuck, Anime(some), cartoons, comics, cooking, kandi, musssiccc, Art/ craft*
+# Interests;  *Horror media, slenderverse, Homestuck, Anime(some), cartoons, comics, cooking, kandi, musssiccc, Art/ craft*
 INT if you want 2! (This is 4 ponytown mainly)
 
-# Music: **Korn, suicidal tendencies, Alice in chains, Stone temple pilots, music, Harley poe, MSI, lapfox, animal collective, TOOL, ETC!*
+# Music: *Korn, suicidal tendencies, Alice in chains, Stone temple pilots, music, Harley poe, MSI, lapfox, animal collective, TOOL, ETC!*
 --
 
 # THIS IS STILL A WIP D:
