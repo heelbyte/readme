@@ -1,6 +1,9 @@
 # hello hello hello!!
 
 
+![habit-emh](https://github.com/user-attachments/assets/f5b6e5a3-4e5b-4424-be4f-68869cd7f628)
+
+
 # my name is Liam/ fin, I do not have any specific pronouns, call me what you'd like!
 -----
 
@@ -13,7 +16,6 @@ INT if you want 2! (This is 4 ponytown mainly)
 # THIS IS STILL A WIP D:
 
 
-![X1mDP0](https://github.com/user-attachments/assets/e1fe0042-eb05-4c7d-939b-a320e2ca8e4d)
 
 ![jade-harley-homestuck (1)](https://github.com/user-attachments/assets/e3e7f63a-71d1-4094-bad1-18a7cf3b57a9)
 
