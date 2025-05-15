@@ -9,7 +9,7 @@ INT if you want 2! (This is 4 ponytown mainly)
 
 # Roblox; (https://www.roblox.com/users/2782263858/profile)
 
-![aaa cool]("C:\Users\FREED\Downloads\3ce5dcb12985289707167760add64be4.gif")
+("C:\Users\FREED\Downloads\3ce5dcb12985289707167760add64be4.gif")
 
 
 
